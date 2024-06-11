@@ -10,4 +10,4 @@
 
 📫 [Website](https://wickedbucket.netlify.app/)
 
-🏷 [LinkedIn](https://www.linkedin.com/in/shreenithi-s-5k5k5k5k/)
+🏷 [LinkedIn](https://www.linkedin.com/in/shyer/)
